@@ -12,7 +12,6 @@
 
 <br/>
 
-[![Team Fortress 2 Hack 2025 – Download Now](https://files.catbox.moe/your-banner-link.png)](https://getloader.click)
 
 </div>
 
